@@ -1,0 +1,2 @@
+# thenewshuchara.com
+SUCHARA ECOMMERCE NEW WEBSITE
